@@ -1,6 +1,6 @@
 
 
-## Free RDP 6 HOURS (DEPENS ON USAGE)
+## Free RDP 6 HOURS
 
 it's all free, don't be stingy ⭐️ yes: D
 
@@ -34,5 +34,3 @@ THIS IS ONLY FOR EDUCATIONAL PURPOSES
 DON'T USE FOR MINING OR ILLEGAL USE
 
 DON'T RECODE THIS SC!.
-
-## Credit By : iLordNV#0002
